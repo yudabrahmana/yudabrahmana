@@ -8,6 +8,8 @@ Saya baru belajar coding. Belum punya pengalaman. Tapi, meskipun umur sudah bera
 
 Saya pernah kuliah di STT Telkom, D3 Teknik Telekomunikasi, 1999-2004 (2001-2003 saya fokus di Band). Saat ini sedang kuliah semester 6, jurusan Sistem Informasi di Universitas Terbuka. Pekerjaan utama saya adalah Bapak Rumah Tangga.
 
-Saya pernah bekerja, kebanyakan sebagai IT Staff, di berbagai perusahaan sejak 2004.
+Saya pernah bekerja, kebanyakan sebagai IT Staff, di berbagai perusahaan sejak 2005 hingga akhirnya resign tahun 2021 dengan jabatan terakhir Co-Supervisor IT.
+
+Saya juga berpengalaman, dengan sangat baik sebagai Administrator Engage School MIS by DoubleFirst.
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti atau terhubung dengan akun [Linkedin](https://www.linkedin.com/in/yudabrahmana/)ku ya.
